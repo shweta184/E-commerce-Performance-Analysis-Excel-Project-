@@ -50,7 +50,7 @@ Marketing efforts such as **ads, offers, and coupons** should focus on this audi
 ## 📥 Excel Report
 
 📊 **View / Download the Excel Dashboard Report**  
-🔗 [Click here to open the Excel file]([https://YOUR_SHAREABLE_LINK](https://1drv.ms/x/c/2f56a447c50d650f/EernoxNP09BBlrbgY2iusecB6xnAraRJsPaf8zdB5HcYFw?e=1FzLkK))
+🔗 [Click here to open the Excel file](https://1drv.ms/x/c/2f56a447c50d650f/EernoxNP09BBlrbgY2iusecB6xnAraRJsPaf8zdB5HcYFw?e=1FzLkK)
 
 ---
 
